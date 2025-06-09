@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @YourLadyofSilver
+- 👀 I’m interested in ... Paranormal , Macabre Films, D&D, Pizza
+- 🌱 I’m currently learning ... Coding 
+- 💞️ I’m looking to collaborate on ... Video Games and Ai Tech
+- 📫 How to reach me ... Email
+- 😄 Pronouns: ... She/Her
+- ⚡ Fun fact: ... Baby Hacker from CyberSpace
